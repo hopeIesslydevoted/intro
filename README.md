@@ -1,95 +1,128 @@
-![1000028482](https://github.com/user-attachments/assets/3fe6c47a-96c8-4c95-86a2-fc921063d6f3)
+![1000029542](https://github.com/user-attachments/assets/407cf781-6ea9-4d91-bc29-5a28d3fc84de)
 
-- 𝘩𝘪 𝘪𝘵𝘴 #me 𝘷𝘪𝘷𝘪𝘢𝘯!!!!!! 𝘶 𝘤𝘢𝘯 𝘢𝘭𝘴𝘰 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘪𝘯𝘶, 𝘱𝘶𝘥𝘥𝘪𝘯𝘨, 𝘴𝘶𝘪, (𝘮𝘪)𝘻𝘶𝘬𝘪, 𝘢𝘮𝘪𝘢, 𝘰𝘳 𝘬𝘢𝘯𝘢 𝘣𝘶𝘵 𝘪 𝘱𝘳𝘦𝘧𝘦𝘳 𝘷𝘪𝘷𝘪𝘢𝘯
+## explodes
 
-- 𝘪 𝘨𝘰 𝘣𝘺 𝘵𝘩𝘦𝘺 / 𝘴𝘩𝘦 / 𝘱𝘢𝘸𝘴 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 (+ 𝘮𝘰𝘳𝘦 𝘣𝘶𝘵 𝘵𝘩𝘦𝘺𝘳𝘦 𝘭𝘪𝘯𝘬𝘦𝘥 𝘪𝘯 𝘮𝘺 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘱𝘢𝘨𝘦 𝘢𝘯𝘥 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴.𝘤𝘤 𝘪𝘧 𝘶 𝘸𝘢𝘯𝘯𝘢 𝘤𝘩𝘦𝘤𝘬 𝘵𝘩𝘦𝘮 𝘰𝘶𝘵)
+hiiii my name is vinnie (or vin for short),, also known as yuzuki, inu, creme, kana or amia ^_<
 
-- 𝘪𝘮 𝘯𝘰𝘯𝘣𝘪𝘯𝘢𝘳𝘺, 𝘥𝘦𝘮𝘪𝘨𝘪𝘳𝘭, 𝘹𝘦𝘯𝘰𝘨𝘦𝘯𝘥𝘦𝘳 𝘢𝘯𝘥 𝘭𝘦𝘴𝘣𝘪𝘢𝘯
+my pronouns are usuusually she / they / jester but i actually recently decided on using he / him pronouns so feel free to use masc terms on me idm (♡ˊ͈ ꒳ ˋ͈)
 
-- 𝘮𝘺 𝘣𝘪𝘳𝘵𝘩𝘥𝘢𝘺 𝘪𝘴 𝘪𝘯 𝘯𝘰𝘷𝘦𝘮𝘣𝘦𝘳 22 𝘰𝘬𝘬𝘬𝘬
+im currently unsure of my SPECIFIC gender and sexuality though 😔 however ill figure it out soon hopefully ⸜(｡˃ ᵕ ˂ )⸝♡
 
-- 𝘮𝘪𝘻𝘶𝘬𝘪 𝘢𝘬𝘪𝘺𝘢𝘮𝘢 𝘧𝘪𝘤𝘵𝘬𝘪𝘯..... 𝘥𝘰𝘶𝘣𝘭𝘦𝘴 𝘪𝘯𝘵
+my birthday is in november 22 hahahah ok
 
-- 𝘦𝘯𝘢 𝘴𝘩𝘪𝘯𝘰𝘯𝘰𝘮𝘦 𝘢𝘯𝘥 𝘬𝘢𝘯𝘢𝘥𝘦 𝘺𝘰𝘪𝘴𝘢𝘬𝘪 𝘺𝘶𝘮𝘦𝘴𝘩𝘪𝘱𝘱𝘦𝘳..... 𝘢𝘨𝘢𝘪𝘯 𝘥𝘰𝘶𝘣𝘭𝘦𝘴 𝘪𝘯𝘵
+im taken,,,,, shoutout to my beautiful wife valen for being peak
 
-- 𝘪𝘮 𝘵𝘢𝘬𝘦𝘯
+im a furry ok
 
-![](https://github.com/user-attachments/assets/8255ce6d-f303-4cce-82c4-d7ef1e5b2a80) 
+mizuenakana yumeshipper here hiiiii ok
 
-# 𝘍𝘈𝘕𝘋𝘖𝘔𝘚𝘓𝘖𝘗!!!!!!!!!!! 
-(𝘴𝘵𝘢𝘳 𝘢𝘵 𝘵𝘩𝘦 𝘦𝘯𝘥 = 𝘮𝘢𝘪𝘯 𝘧𝘢𝘯𝘥𝘰𝘮𝘴/𝘩𝘺𝘱𝘦𝘳𝘧𝘪𝘹𝘢𝘵𝘪𝘰𝘯𝘴) 
+![](https://github.com/user-attachments/assets/3b53e612-26d2-4346-87b6-5b2b88598211) 
 
-- 𝘱𝘳𝘰𝘫𝘦𝘤𝘵 𝘴𝘦𝘬𝘢𝘪 ☆
+## FANDOMS!!!!!! 
 
-- 𝘷𝘰𝘤𝘢𝘭𝘰𝘪𝘥 ☆
+- project sekai (main fandom atm)
 
-- 𝘮𝘢𝘥𝘰𝘬𝘢 𝘮𝘢𝘨𝘪𝘤𝘢
+- vocaloid
 
-- 𝘱𝘰𝘬𝘦𝘮𝘰𝘯
+- madoka magica
 
-- 𝘢𝘭𝘪𝘦𝘯 𝘴𝘵𝘢𝘨𝘦 ☆
+- alien stage
 
-- 𝘭𝘶𝘤𝘬𝘺 𝘴𝘵𝘢𝘳
+- cookie run kingdom
 
-- 𝘥𝘰𝘬𝘪 𝘥𝘰𝘬𝘪 𝘭𝘪𝘵𝘦𝘳𝘢𝘵𝘶𝘳𝘦 𝘤𝘭𝘶𝘣
+- needy streamer overload
 
-- 𝘤𝘰𝘰𝘬𝘪𝘦 𝘳𝘶𝘯
+- lucky star
 
-![](https://github.com/user-attachments/assets/907d2f6d-a68b-481c-b2cf-116c45f2b393) 
+- pokemon
 
-# 𝘋𝘕𝘐 𝘓𝘐𝘚𝘛 / 𝘉𝘠𝘐 + 𝘖𝘛𝘏𝘌𝘙𝘚
+![1000029541](https://github.com/user-attachments/assets/c3ffa413-bc06-40df-8fb6-0ee1e06ab283)
 
-- 𝘪 𝘢𝘤𝘵𝘶𝘢𝘭𝘭𝘺 𝘥𝘰 𝘯𝘰𝘵 𝘨𝘪𝘷𝘦 𝘢 𝘳𝘦𝘥, 𝘨𝘳𝘦𝘦𝘯, 𝘣𝘭𝘶𝘦 𝘰𝘳 𝘱𝘶𝘳𝘱𝘭𝘦 𝘧𝘶𝘤𝘬 𝘢𝘣𝘰𝘶𝘵 𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴, 𝘫𝘶𝘴𝘵 𝘬𝘦𝘦𝘱 𝘵𝘩𝘦 𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘴 𝘢𝘸𝘢𝘺 𝘧𝘳𝘰𝘮 𝘔𝘌
+## MY FRIENDS!!!!!!!!! 
 
-- 𝘥𝘰 𝘕𝘖𝘛 𝘤𝘰𝘷𝘦𝘳 𝘮𝘺 𝘴𝘬𝘪𝘯𝘴 𝘶𝘯𝘭𝘦𝘴𝘴 𝘸𝘦'𝘳𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴
+- valen / yuki (gf <3)
 
-- 𝘵𝘧𝘤 (𝘵𝘩𝘦 𝘧𝘳𝘦𝘢𝘬 𝘤𝘪𝘳𝘤𝘶𝘴) 𝘧𝘢𝘯𝘥𝘰𝘮 𝘚𝘛𝘙𝘐𝘊𝘛𝘓𝘠 𝘋𝘕𝘐 𝘰𝘮𝘨 𝘵𝘩𝘢𝘵 𝘨𝘢𝘮𝘦 𝘮𝘢𝘬𝘦𝘴 𝘮𝘦 𝘴𝘰 𝘸𝘦𝘪𝘳𝘥𝘦𝘥 𝘰𝘶𝘵
+- dino
 
-- 𝘪𝘧 𝘪 𝘩𝘢𝘷𝘦 𝘢𝘯𝘺 𝘬𝘪𝘯𝘥 𝘰𝘧 𝘥𝘯𝘪 𝘪𝘯 𝘮𝘺 𝘯𝘢𝘮𝘦 (𝘦𝘹𝘢𝘮𝘱𝘭𝘦: 𝘥𝘯𝘪𝘶𝘧, 𝘥𝘯𝘪𝘶𝘤𝘧, 𝘥𝘯𝘪𝘶𝘪𝘥), 𝘵𝘩𝘦𝘯 𝘱𝘭𝘦𝘢𝘴𝘦 𝘳𝘦𝘴𝘱𝘦𝘤𝘵 𝘪𝘵.
+- zippy
 
-- 𝘪 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺 𝘴𝘰 𝘪𝘧 𝘪 𝘩𝘢𝘷𝘦 𝘢 𝘣𝘢𝘥 𝘪𝘮𝘱𝘳𝘦𝘴𝘴𝘪𝘰𝘯 𝘰𝘧 𝘺𝘰𝘶 𝘵𝘩𝘦𝘯 𝘺𝘦𝘢𝘩 𝘺𝘰𝘶'𝘳𝘦 𝘨𝘦𝘵𝘵𝘪𝘯𝘨 𝘣𝘭𝘰𝘤𝘬𝘦𝘥, 𝘵𝘩𝘢𝘵𝘴 𝘫𝘶𝘴𝘵 𝘩𝘰𝘸 𝘪𝘵 𝘪𝘴
+- leadia
 
-- 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘪 𝘭𝘦𝘢𝘷𝘦 𝘶𝘯𝘢𝘯𝘯𝘰𝘶𝘯𝘤𝘦𝘥, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰 𝘯𝘰𝘵 𝘢𝘴𝘴𝘶𝘮𝘦 𝘵𝘩𝘢𝘵 𝘪 𝘩𝘢𝘵𝘦 𝘺𝘰𝘶, 𝘪𝘵𝘴 𝘮𝘰𝘴𝘵 𝘭𝘪𝘬𝘦𝘭𝘺 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘵𝘩𝘪𝘯𝘨𝘴 𝘨𝘰𝘵 𝘳𝘦𝘢𝘭𝘭𝘺 𝘲𝘶𝘪𝘦𝘵 𝘢𝘯𝘥/𝘰𝘳 𝘪 𝘯𝘦𝘦𝘥𝘦𝘥 𝘵𝘰 𝘥𝘰 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘳𝘦𝘢𝘭𝘭𝘺 𝘲𝘶𝘪𝘤𝘬𝘭𝘺 𝘢𝘯𝘥 𝘥𝘪𝘥𝘯'𝘵 𝘩𝘢𝘷𝘦 𝘦𝘯𝘰𝘶𝘨𝘩 𝘵𝘪𝘮𝘦 𝘵𝘰 𝘴𝘢𝘺 𝘣𝘺𝘦
+- katsu
 
-- 𝘪𝘮 𝘰𝘧𝘧𝘵𝘢𝘣 𝘢 𝘭𝘰𝘵 𝘴𝘰 𝘸2𝘪
+- yoku (GET online bro.)
 
-- 𝘮𝘺 𝘱𝘢𝘳𝘵𝘺 𝘳𝘦𝘲𝘶𝘦𝘴𝘵𝘴 𝘢𝘳𝘦 𝘵𝘶𝘳𝘯𝘦𝘥 𝘰𝘧𝘧 𝘧𝘰𝘳 𝘢 𝘳𝘦𝘢𝘴𝘰𝘯, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰 𝘯𝘰𝘵 𝘢𝘴𝘬 𝘮𝘦 𝘵𝘰 𝘫𝘰𝘪𝘯 𝘢𝘯𝘺 𝘱𝘢𝘳𝘵𝘪𝘦𝘴, 𝘢𝘴 𝘪 𝘢𝘮 𝘢𝘭𝘳𝘦𝘢𝘥𝘺 𝘪𝘯 𝘰𝘯𝘦.
+- izzy
 
-- 𝘱𝘭𝘦𝘢𝘴𝘦 𝘵𝘦𝘭𝘭 𝘮𝘦 𝘪𝘧 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 𝘪 𝘴𝘢𝘺 𝘰𝘳 𝘥𝘰 𝘮𝘢𝘬𝘦𝘴 𝘺𝘰𝘶 𝘶𝘯𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦, 𝘪 𝘩𝘢𝘷𝘦 𝘢 𝘷𝘦𝘳𝘺 𝘰𝘥𝘥 𝘴𝘦𝘯𝘴𝘦 𝘰𝘧 𝘩𝘶𝘮𝘰𝘳 𝘴𝘰 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘪𝘮𝘱𝘰𝘳𝘵𝘢𝘯𝘵
+- tears
 
-- 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘷𝘦𝘯𝘵 𝘵𝘰 𝘮𝘦, 𝘩𝘰𝘸𝘦𝘷𝘦𝘳 𝘺𝘰𝘶 𝘤𝘢𝘯𝘯𝘰𝘵 𝘫𝘶𝘴𝘵 𝘦𝘹𝘱𝘦𝘤𝘵 𝘮𝘦 𝘵𝘰 𝘐𝘔𝘔𝘌𝘋𝘐𝘈𝘛𝘌𝘓𝘠 𝘤𝘰𝘮𝘧𝘰𝘳𝘵, 𝘢𝘴 𝘪 𝘢𝘮 𝘯𝘰𝘵 𝘷𝘦𝘳𝘺 𝘨𝘰𝘰𝘥 𝘢𝘵 𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘪𝘯𝘨. 𝘣𝘶𝘵 𝘪𝘮 𝘢 𝘨𝘳𝘦𝘢𝘵 𝘭𝘪𝘴𝘵𝘦𝘯𝘦𝘳 ^-^
+- haruki
 
-- 𝘪 𝘮𝘢𝘺 𝘴𝘵𝘢𝘳𝘵 𝘵𝘰 𝘢𝘤𝘵 𝘫𝘰𝘬𝘪𝘯𝘨𝘭𝘺 𝘮𝘦𝘢𝘯 𝘪𝘧 𝘸𝘦'𝘳𝘦 𝘤𝘭𝘰𝘴𝘦 𝘦𝘯𝘰𝘶𝘨𝘩, 𝘱𝘭𝘦𝘢𝘴𝘦 𝘵𝘦𝘭𝘭 𝘮𝘦 𝘪𝘧 𝘺𝘰𝘶 𝘢𝘳𝘦𝘯'𝘵 𝘰𝘬 𝘸𝘪𝘵𝘩 𝘵𝘩𝘪𝘴 𝘢𝘯𝘥 𝘪𝘭𝘭 𝘣𝘦 𝘴𝘶𝘳𝘦 𝘵𝘰 𝘴𝘵𝘰𝘱
+- nat
 
-- 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰 𝘕𝘖𝘛 𝘧𝘳𝘪𝘦𝘯𝘥 𝘳𝘦𝘲𝘶𝘦𝘴𝘵 𝘮𝘦 𝘪𝘧 𝘸𝘦 𝘩𝘢𝘷𝘦𝘯'𝘵 𝘴𝘱𝘰𝘬𝘦𝘯 𝘢 𝘸𝘰𝘳𝘥 𝘵𝘰 𝘦𝘢𝘤𝘩 𝘰𝘵𝘩𝘦𝘳, 𝘪𝘵 𝘸𝘪𝘭𝘭 𝘨𝘦𝘵 𝘪𝘨𝘯𝘰𝘳𝘦𝘥.
+- fuyu / luci
 
-- 𝘪𝘧 𝘪𝘮 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘱𝘢𝘳𝘵𝘯𝘦𝘳 𝘵𝘩𝘦𝘯 𝘱𝘭𝘦𝘢𝘴𝘦 𝘢𝘴𝘬 𝘶𝘴 𝘉𝘖𝘛𝘏 𝘪𝘧 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘴𝘪𝘵 𝘸𝘪𝘵𝘩 𝘶𝘴 𝘶𝘯𝘭𝘦𝘴𝘴 𝘺𝘰𝘶'𝘳𝘦 𝘢 𝘱𝘢𝘳𝘵𝘺 𝘮𝘦𝘮𝘣𝘦𝘳, 𝘢𝘯𝘥 𝘪𝘧 𝘰𝘯𝘦 𝘰𝘧 𝘶𝘴 𝘴𝘢𝘺𝘴 𝘯𝘰, 𝘵𝘩𝘦𝘯 𝘺𝘰𝘶 𝘤𝘢𝘯𝘯𝘰𝘵. 𝘩𝘦𝘳 𝘨𝘪𝘵𝘩𝘶𝘣 𝘪𝘴 [@DEADINS0MNIA](https://github.com/DEADINS0MNIA) 𝘴𝘰 𝘺𝘦𝘢𝘩 𝘭𝘰𝘰𝘬 𝘰𝘶𝘵 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵 𝘶𝘴𝘦𝘳𝘯𝘢𝘮𝘦
+and more!!!! if u aren't included in this then srry ૮꒰◞ ˕ ◟ ྀི꒱ა just remember that that i love all my friends equally
 
-- 𝘣𝘦𝘭𝘪𝘦𝘷𝘦 𝘪𝘵 𝘰𝘳 𝘯𝘰𝘵 𝘪 𝘢𝘤𝘵𝘶𝘢𝘭𝘭𝘺 𝘭𝘰𝘷𝘦 𝘸𝘩𝘦𝘯 𝘱𝘦𝘰𝘱𝘭𝘦 𝘤𝘶𝘥𝘥𝘭𝘦 𝘮𝘦,, 𝘏𝘖𝘞𝘌𝘝𝘌𝘙 𝘪𝘧 𝘪𝘮 𝘢𝘭𝘳𝘦𝘢𝘥𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘴𝘰𝘮𝘦𝘣𝘰𝘥𝘺 𝘵𝘩𝘦𝘯 𝘱𝘭𝘦𝘢𝘴𝘦 𝘢𝘴𝘬
+![](https://github.com/user-attachments/assets/8a173cd0-3305-4389-808b-fe12c49c80bb) 
 
-- 𝘪 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘥𝘰𝘯𝘵 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘧𝘪𝘳𝘴𝘵 𝘶𝘯𝘭𝘦𝘴𝘴 𝘸𝘦'𝘳𝘦 𝘚𝘜𝘗𝘌𝘙 𝘤𝘭𝘰𝘴𝘦,, 𝘪 𝘬𝘪𝘯𝘥 𝘰𝘧 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘭𝘪𝘬𝘦 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘱𝘦𝘰𝘱𝘭𝘦 𝘧𝘪𝘳𝘴𝘵 𝘦𝘷𝘦𝘯 𝘰𝘶𝘵𝘴𝘪𝘥𝘦 𝘰𝘧 𝘱𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘮𝘰𝘴𝘵 𝘰𝘧 𝘵𝘩𝘦 𝘵𝘪𝘮𝘦 𝘪 𝘯𝘦𝘷𝘦𝘳 𝘬𝘯𝘰𝘸 𝘪𝘧 𝘵𝘩𝘦𝘺𝘳𝘦 𝘪𝘯 𝘵𝘩𝘦 𝘮𝘰𝘰𝘥 𝘰𝘳 𝘯𝘰𝘵
+## BEFORE YOU INT!!!! 
 
-![](https://github.com/user-attachments/assets/67de3b39-5623-4256-a660-3585181ebc53)
+- i may be a bit awkward or avoidant the first time we talk but ill latch onto you eventually
 
-# 𝘪𝘧 𝘺𝘰𝘶 𝘮𝘪𝘴𝘴 𝘮𝘦, 𝘭𝘰𝘰𝘬 𝘧𝘰𝘳 𝘮𝘦 𝘪𝘯 𝘵𝘩𝘦𝘴𝘦 𝘵𝘩𝘪𝘯𝘨𝘴.. 
+- please *ask* to c+h me if im already sitting with someone
 
-- 𝘴𝘵𝘢𝘳𝘴
+- i disconnect a lot 😔
 
-- 𝘩𝘦𝘢𝘳𝘵𝘴
+- i might go offtab and sometimes leave if everyone goes silent
 
-- 𝘥𝘰𝘨𝘴
+- speaking of offtab im usually offtab or semi afk most of the time so i may not respond immediately or miss normal chat so i recommend whispering me
 
-- 𝘱𝘢𝘸𝘴
+- if im already sitting with my gf then ask BOTH OF US if you can sit with us
 
-- 𝘣𝘰𝘯𝘦𝘴
+- if anything that i say makes you uncomfortable then PLEASE tell me and ill stop immediately
 
-- 𝘤𝘢𝘬𝘦𝘴/𝘢𝘯𝘺 𝘬𝘪𝘯𝘥 𝘰𝘧 𝘥𝘦𝘴𝘴𝘦𝘳𝘵
+- i make suggestive jokes if we're close enough, again, please tell me if this makes you uncomfortable
 
-- 𝘱𝘶𝘥𝘥𝘪𝘯𝘨/𝘧𝘭𝘢𝘯
+- i only say slurs SOMETIMES and its only the ones that i actually can reclaim but i only do it depending on the context
 
-- 𝘳𝘪𝘣𝘣𝘰𝘯𝘴
+- if i have any kind of dni in my name (dniuf, dniuparty, dniugf, dniuid, etc) then please respect it
 
-- 𝘵𝘩𝘦 𝘤𝘰𝘭𝘰𝘳 𝘱𝘪𝘯𝘬
+- i block freely so honestly i might just block you if i have a bad impression of you or if i just dont like you
 
-<img width="1152" height="648" alt="1000028400" src="https://github.com/user-attachments/assets/37fccdfd-6a2e-440a-b73c-50e17d99231b" />
+- feel free to vent to me, however don't expect me to immediately comfort you as i am not good at comforting. however i am a great listener
+
+![1000029541](https://github.com/user-attachments/assets/d6fd01fd-042c-4bcf-851e-f6c69db8be6d)
+
+## DNI LIST
+
+- pedophiles
+
+- zoophiles
+
+- loli/shotacons
+
+- racists
+
+- homo/transphobes
+
+- PEOPLE WHO MAKE JOKES ABOUT RAPE. ITS NOT FUNNY
+
+- tr*mp supporters
+
+- OVERLY religious people
+
+- OVERLY political people
+
+- tfc fans
+
+- hh/hb fans
+
+- darkshippers
+
+theres alot more but im too lazy to list all of them down
+
+![](https://github.com/user-attachments/assets/8a67d985-4716-4a75-b30f-5e58cf1f7f91) 
+
+<img width="220" height="220" alt="1000028241" src="https://github.com/user-attachments/assets/ad2683e4-a26d-489f-9ea6-4b6a93a08722" />
 
