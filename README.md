@@ -92,6 +92,10 @@ and more!!!! if u aren't included in this then srry ૮꒰◞ ˕ ◟ ྀི꒱�
 
 - feel free to vent to me, however don't expect me to immediately comfort you as i am not good at comforting. however i am a great listener
 
+- to my oomfs,, u can clip me BUT if youre doing it to the point where you're just clipping every single suggestive thing i say then im gonna ask you to stop because NO i dont constantly want to be clipped
+
+- sometimes im distant, it does not mean i hate you i just prefer to talk yo specific people
+
 ![1000029541](https://github.com/user-attachments/assets/d6fd01fd-042c-4bcf-851e-f6c69db8be6d)
 
 ## DNI LIST
