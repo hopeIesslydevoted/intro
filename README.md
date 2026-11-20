@@ -1,3 +1,3 @@
 im too lazy to work on this sooooo ... 
 
-<img width="220" height="220" alt="1000031937" src="https://github.com/user-attachments/assets/a8809f97-e58e-4727-b6e5-591a7b0175b2" />
+<img width="900" height="900" alt="1000031937" src="https://github.com/user-attachments/assets/a8809f97-e58e-4727-b6e5-591a7b0175b2" />
